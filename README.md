@@ -20,6 +20,7 @@
   <img src="https://img.shields.io/badge/⠀✧⠀lord⠀oyster⠀-⠀white⠀pearl⠀♡-dab2b7" alt="Description">
 </p>
 
+###### <div align="center"> $${\color{#d19d9f}꒰ঌ ⠀\space angelika \space , \space angi \space , \space any \space nicknames⠀\space⠀⊰⊱⠀\space⠀she \space / \space her \space⠀ও⁺}$$
 
 [![Alt text](https://github.com/aevsria/gift-for-angi/blob/528e804f145e4fb9a77c19efa03f9f5de065697a/Untitled72_20260413220254-removebg-preview.png)](https://github.com/aevsria)
 
@@ -29,5 +30,3 @@
   <img src="https://github.com/aevsria/gift-for-angi/blob/ac58159bc5bb6f542a6dfb098a3fe3e3d5f7bad2/IMG_1882.gif" alt="Description">
 </p>
 
-
-###### <div align="center"> $${\color{#d19d9f}꒰ঌ ⠀\space angelika \space , \space angi \space , \space any \space nicknames⠀\space⠀⊰⊱⠀\space⠀she \space / \space her \space⠀ও⁺}$$
