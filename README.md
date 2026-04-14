@@ -17,7 +17,7 @@
 
 
 <p align="center">
-  <img src="https://img.shields.io/badge/⠀✧⠀lord⠀oyster⠀-⠀white⠀pearl⠀-dab2b7" alt="Description">
+  <img src="https://img.shields.io/badge/⠀✧⠀lord⠀oyster⠀-⠀white⠀pearl⠀♡-dab2b7" alt="Description">
 </p>
 
 
