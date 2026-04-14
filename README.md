@@ -1,5 +1,5 @@
 
-## <div align="center"> $${\color{#d29798} "⠀Feel⠀the⠀calm⠀embrace⠀of⠀the⠀sea.⠀"}$$
+## <div align="center"> $${\color{#d29798}" \space Feel \space the \space calm \space embrace \space of \space the \space sea. \space "}$$
 
 
 ### <div align="center"> $${\color{#e0c0c2} ๑‧˚₊꒷︶ଓ︶꒷꒦⊹๑‧˚₊꒷︶ଓ︶꒷꒦⊹๑}$$
@@ -20,6 +20,10 @@
   <img src="https://img.shields.io/badge/⠀✧⠀lord⠀oyster⠀-⠀white⠀pearl⠀♡-dab2b7" alt="Description">
 </p>
 
+
+[![Alt text](https://github.com/aevsria/gift-for-angi/blob/528e804f145e4fb9a77c19efa03f9f5de065697a/Untitled72_20260413220254-removebg-preview.png)](https://github.com/aevsria)
+
+##### <div align="center"> $${\color{#cca3a5}matching \space with \space @aevsria}$$
 
 <p align="center">
   <img src="https://github.com/aevsria/gift-for-angi/blob/ac58159bc5bb6f542a6dfb098a3fe3e3d5f7bad2/IMG_1882.gif" alt="Description">
