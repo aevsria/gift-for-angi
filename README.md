@@ -26,4 +26,4 @@
 </p>
 
 
-###### $${\color{#885494}಄ \space ꒰ঌ \space angelika \space , \space angi \space , \space any \space nicknames⠀\space⠀⊰⊱⠀\space⠀she \space / \space her \space⠀ও⁺}$$
+###### <div align="center"> $${\color{#d19d9f}꒰ঌ ⠀\space angelika \space , \space angi \space , \space any \space nicknames⠀\space⠀⊰⊱⠀\space⠀she \space / \space her \space⠀ও⁺}$$
