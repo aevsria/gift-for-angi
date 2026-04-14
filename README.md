@@ -1,8 +1,8 @@
 
-## <div align="center"> $${\color{#d29798} "Feel the calm embrace of the sea."}$$
+## <div align="center"> $${\color{#d29798} "⠀Feel⠀the⠀calm⠀embrace⠀of⠀the⠀sea.⠀"}$$
 
 
-##### <div align="center"> $${\color{#e0c0c2} ๑‧˚₊꒷︶ଓ︶꒷꒦⊹๑‧˚₊꒷︶ଓ︶꒷꒦⊹๑}$$
+### <div align="center"> $${\color{#e0c0c2} ๑‧˚₊꒷︶ଓ︶꒷꒦⊹๑‧˚₊꒷︶ଓ︶꒷꒦⊹๑}$$
 
 
 ![image](https://github.com/aevsria/gift-for-angi/blob/40f2024613be2d1d2a27aa213c73d5fada0c4c4e/Untitled72_20260413190623-removebg-preview.png)
