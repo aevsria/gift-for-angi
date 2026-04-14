@@ -24,3 +24,6 @@
 <p align="center">
   <img src="https://github.com/aevsria/gift-for-angi/blob/ac58159bc5bb6f542a6dfb098a3fe3e3d5f7bad2/IMG_1882.gif" alt="Description">
 </p>
+
+
+###### $${\color{#885494}಄ \space ꒰ঌ \space angelika \space , \space angi \space , \space any \space nicknames⠀\space⠀✧⠀\space⠀she \space / \space her \space⠀ও⁺}$$
