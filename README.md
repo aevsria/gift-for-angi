@@ -24,6 +24,8 @@
 
 ###### <div align="center"> $${\color{#d3adb1}⋆.ೃ࿔*･ ⠀\space interact \space freely \space , \space id \space love \space to \space make⠀\space new \space⠀friends! \space ⠀ৎ ݁˖ . ݁}$$
 
+###### <div align="center"> $${\color{#d3aaaf}ྀི︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶𓏴︶˚̣̣̣ ྀི◟ ͜ ◞˚̣̣̣ ྀི︶}$$
+
 [![Alt text](https://github.com/aevsria/gift-for-angi/blob/528e804f145e4fb9a77c19efa03f9f5de065697a/Untitled72_20260413220254-removebg-preview.png)](https://github.com/aevsria)
 
 ##### <div align="center"> $${\color{#cca3a5}matching \space with \space @aevsria \space ⤷ \space (clickable)}$$
